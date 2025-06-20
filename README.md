@@ -54,7 +54,7 @@
 
 <h2>Les avantages de cette triche Rise of Kingdoms</h2>
 
-<p>On parle ici de <strong>Rise of Kingdoms astuces 2025</strong> à la pointe, pas de vieux glitchs dépassés. Voici pourquoi ça vaut vraiment le coup :</p>
+<p>On parle ici de <strong>astuces pour Rise of Kingdoms 2025</strong> à la pointe, pas de vieux glitchs dépassés. Voici pourquoi ça vaut vraiment le coup :</p>
 
 <ul>
   <li>Pas besoin de root ni de jailbreak</li>
